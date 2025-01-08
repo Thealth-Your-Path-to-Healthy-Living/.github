@@ -60,7 +60,7 @@ Here are some external resources to deepen your knowledge:
 
 ## Why Thealth Stands Out  
 
-When you search for "thealth," you’ll find a platform that prioritizes your well-being. Our goal is to ensure you receive actionable tips, honest product recommendations, and inspiration to live a sustainable, healthy lifestyle.
+When you search for "thealth," you’ll find a platform that prioritizes your well-being. Our goal is to ensure you receive actionable tips, honest product recommendations, and inspiration to live a sustainable, healthy lifestyle..
 
 Explore our blog and start your wellness journey today!  
 
